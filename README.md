@@ -1,3 +1,3 @@
 - 👋 Hi, I’m @ParitoshKumarTripathi
 - 📫 How to reach me
-- DM me on Twitter
+- DM me on X (Twitter) @ https://x.com/TheProParitosh
