@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @ParitoshKumarTripathi
+- 📫 How to reach me
+- DM me on Twitter
